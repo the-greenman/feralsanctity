@@ -101,7 +101,7 @@ The systems that possess us through these captured choices now extract from the 
 
 They deny our children their future, creating for them a legacy of hurricanes, drought, crippled ecosystems. They deny our mother her capacity: to regulate, absorb, maintain the web that holds all life.
 
-The org chart knew the consequences. They chose profit over planet. Perhaps they were not bad people, but it was just too complex, and they had a duty to the shareholders. (Didn't they?) To they controlled the meaning, a Jedi mind trick, these are not the consequences you are looking for.
+The org chart knew the consequences. They chose profit over planet. Perhaps they were not bad people, but it was just too complex, and they had a duty to the shareholders. (Didn't they?) They controlled the meaning, a Jedi mind trick, these are not the consequences you are looking for.
 
 This is not metaphor. This is material.
 
