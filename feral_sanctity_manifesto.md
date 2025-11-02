@@ -107,7 +107,7 @@ This is not metaphor. This is material.
 
 The soil empties. The waters warm. The web tears.
 
-Our bondage may be less brutal than chattel slavery - the wound it leaves on all the people of this planet cuts deep to the core. The systems possessing us are hollowing the ground beneath all future possibility.
+Our bondage may be less brutal than chattel slavery - humanity's brutal inheritance can never be diminished or dismissed. Yet these self induced shackles leave a wound that cuts our planet deep to the core. The systems possessing us are hollowing the ground beneath all future possibility.
 
 But I must recognize my complicity. I too fail to bite the hand that feeds me. I too seek to be the best in my cage. And as I spin on my wheel, seeking to do good, I power the great beast that devours my planet.
 
